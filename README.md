@@ -1,3 +1,3 @@
 # mac-book-pro
-### [Assignment private repo link](https://classroom.github.com/a/E9h_8Kef)
-#### Click this link: https://classroom.github.com/a/E9h_8Kef
+### Use 'stevekaku' as a coupon code and get discount of 20%
+#### 
